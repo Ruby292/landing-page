@@ -1,4 +1,4 @@
-Thank you for all the creators who have uploaded those images which I have used in my project. Here is their infomation: 
+Thank you for all the creators who have uploaded those images which I have used in my project. Here is their information: 
 pexels.comproject/@est1307/
 https://pixabay.com/users/wal_172619-12138562/
 https://pixabay.com/users/mitrey-16277369/
